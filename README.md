@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>👋 Hi, I'm Abdelkader<br>* I'm a Student at Faculty of Engineering<br>* I'm studying in the Computer Engineering&Control Department  <br>* I'm interested in AI/Vision Solution /DL<br>📧 You can contact me via email: abd212496@gmail.com  <br>📄 Know about my experiences: [https://drive.google.com/file/d/1nJfHjirXf1e8cAFUqwXrZW25JPACQVe_/view?usp=sharing]<br>📄LinkedIn [https://www.linkedin.com/in/abdelkader-esaam-92b82224b/]
+<br> Hi, I'm Abdelkader<br>* I'm a Student at Faculty of Engineering<br>* I'm studying in the Computer Engineering&Control Department  <br>* I'm interested in AI/Vision Solution /DL<br>📧 You can contact me via email: abd212496@gmail.com  <br>📄 Know about my experiences: [https://drive.google.com/file/d/1nJfHjirXf1e8cAFUqwXrZW25JPACQVe_/view?usp=sharing]<br>📄LinkedIn [https://www.linkedin.com/in/abdelkader-esaam-92b82224b/]
 
 
 ## 🌐 Socials:
